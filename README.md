@@ -7,6 +7,7 @@
 - Relationship: Single.
 - best friends: Xteraintor, Jazzr, CrabLover.
 - Disabilites (actually diagnoised by a professional doctor): ADHD and ASD.
+- I use tonetags.
 
 <img width="400" height="64" alt="image" src="https://github.com/user-attachments/assets/164b4760-cc51-430a-8c9b-1e55b706a74e" />
 
@@ -43,9 +44,16 @@ Fandoms/Franchises I'm in:
 - under 16 years old
 - above 21+
 - fictokins or people who THINK they are the character and get uncomfortable when people joke about said character.
+- people who hide doubles
+- rude
+  
 
   <img width="400" height="51" alt="image" src="https://github.com/user-attachments/assets/200b34bd-bbd1-41a0-8b15-e4845868c465" />
 
 ## Thanks for reading!
 
 ## my cookie run kingdom Username is My github! I am on Dark Cacao Server!! our guild is DewSurplus. 
+
+- another big note I suffer from Misanthropy, and I do have empathy but a lot more apathy.
+- Misanthropy means: Misanthropy is the general hatred, dislike, or distrust of the human species, human behavior, or human nature. A misanthrope or misanthropist is someone who holds such views or feelings. Misanthropy involves a negative evaluative attitude toward humanity that is based on humankind's flaws.
+- this stems from sexual abuse trama in my past and the fact that i had been friends with forceful religious people. 
