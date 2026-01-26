@@ -46,6 +46,8 @@ Fandoms/Franchises I'm in:
 - fictokins or people who THINK they are the character and get uncomfortable when people joke about said character.
 - people who hide doubles
 - rude
+- people who block freely // sorry if i sit on you but you hid me it aint my fault twin. I usually hide people for 24 hours unless they've been rude to me or my friends.
+- people who don't have ages / you can still wisp me crowns tho!
   
 
   <img width="400" height="51" alt="image" src="https://github.com/user-attachments/assets/200b34bd-bbd1-41a0-8b15-e4845868c465" />
