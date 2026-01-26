@@ -6,6 +6,7 @@
 - Sexuality: Omnisexual, Demisexual, and Repricosexual.
 - Relationship: Single.
 - best friends: Xteraintor, Jazzr, CrabLover.
+- Disabilites (actually diagnoised by a professional doctor): ADHD and ASD.
 
 <img width="400" height="64" alt="image" src="https://github.com/user-attachments/assets/164b4760-cc51-430a-8c9b-1e55b706a74e" />
 
