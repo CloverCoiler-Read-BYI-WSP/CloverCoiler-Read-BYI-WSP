@@ -8,6 +8,9 @@
 - best friends: Xteraintor, Jazzr, CrabLover.
 - Disabilites (actually diagnoised by a professional doctor): ADHD and ASD.
 - I use tonetags.
+- IMPORTANT!! BELOW!!
+- I switch ponies ALOT, and if I am a pony say like rewind and theres a chromedome online I WILL SWITCH skins, it makes me super uncomfortable and I don't want the person cosplaying the chromedome to feel uncomfy with my presences I will also do this if its Tailgate/cyclonus, Ratchet/drift, Overlord/Fort max [not a ship], and any other transformers whom are paired up.
+- you can sit with me if you ask or see C+H but please don't block my pony unless we're friendso's.
 
 <img width="400" height="64" alt="image" src="https://github.com/user-attachments/assets/164b4760-cc51-430a-8c9b-1e55b706a74e" />
 
