@@ -56,16 +56,14 @@ Fandoms/Franchises I'm in:
 - people who block freely // sorry if i sit on you but you hid me it aint my fault twin. I usually hide people for 24 hours unless they've been rude to me or my friends.
 - people who don't have ages / you can still wisp me crowns tho!
 - Copiers of me or my friends.
-- TARN/BUTTEROLL COOKIE/OR SKYWARPS - I just don't like those characters you can int if your a different skin or just not int at all, I really don't care.
+- TARN/BUTTEROLL COOKIE/KAON/VOS/OR SKYWARPS - I just don't like those characters you can int if your a different skin or just not int at all, I really don't care. most of the DJD make me super uncomfortable. Sorry!! 
 - Whispering me random stuff when I'm working on ponies and if I don't know them.
 - STRONG ON NO YOUTUBERS/TIKTOKERS, I DONT WANT TO BE RECORDED OR SCREENSHOTED.
   
 
   <img width="400" height="51" alt="image" src="https://github.com/user-attachments/assets/200b34bd-bbd1-41a0-8b15-e4845868c465" />
 
-## Thanks for reading!
-
-## my cookie run kingdom Username is My github! I am on Dark Cacao Server!! our guild is DewSurplus. 
+## Thanks for reading! 
 
 - another big note I suffer from Misanthropy, and I do have empathy but a lot more apathy.
 - Misanthropy means: Misanthropy is the general hatred, dislike, or distrust of the human species, human behavior, or human nature. A misanthrope or misanthropist is someone who holds such views or feelings. Misanthropy involves a negative evaluative attitude toward humanity that is based on humankind's flaws.
