@@ -15,6 +15,7 @@
 - I switch ponies ALOT, and if I am a pony say like rewind and theres a chromedome online I WILL SWITCH skins, it makes me super uncomfortable and I don't want the person cosplaying the chromedome to feel uncomfy with my presences I will also do this if its Tailgate/cyclonus, Ratchet/drift, Overlord/Fort max [not a ship], and any other transformers whom are paired up.
 - you can sit with me if you ask or see C+H but please don't block my pony unless we're friendso's.
 - I only have 3 friends on the ponytown friend list so if you whisper me hi and I don't see we're friends I will hide you due to making me uncomfortable, crowns are welcomed though.
+- Hyperarousal, please be warned I am always on guard, if your looking at me whilst conversing in the private or party chat i will think your talking about me.
 
 <img width="400" height="64" alt="image" src="https://github.com/user-attachments/assets/164b4760-cc51-430a-8c9b-1e55b706a74e" />
 
