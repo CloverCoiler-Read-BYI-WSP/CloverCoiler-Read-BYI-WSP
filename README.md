@@ -1,6 +1,6 @@
 <img width="400" height="72" alt="image" src="https://github.com/user-attachments/assets/51236905-4438-43d5-b8ee-a10c50b9f531" />
 
-## PLEASE DO NOT WHISPER ME IF I DON'T KNOW YOU I WILL HIDE YOU, YOU MAY WHISPER CROWNS ONLY DANKE.
+
 
 
 
