@@ -9,7 +9,7 @@
 - ⟡ I got parent consent to run my Patreon account! [plus it won't matter once I turn 18 next month.]
 - ⟡ Please follow either of my socials including this one if you want to!
 
-<img width="2048" height="171" alt="image" src="https://github.com/user-attachments/assets/1b75ec02-b275-4abd-9952-ecfded49bab5" />
+[<img width="2048" height="171" alt="image" src="https://github.com/user-attachments/assets/1b75ec02-b275-4abd-9952-ecfded49bab5" />](https://64.media.tumblr.com/2b5f3e2a9cbbe1bb44d1a51f631ac59d/80bc69132ab95b82-c9/s1280x1920/704702c3af1242c4d34741b7fb014fdddb8b52d3.pnj)
 
 - ˗ˏˋ the ponies I will usually be when online in Ponytown! 
 
