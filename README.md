@@ -24,7 +24,7 @@
 <img width="2048" height="209" alt="image" src="https://github.com/user-attachments/assets/6b3a2306-787e-4475-9653-0bf2939215d4" />
 
 <p align="center">
-  I am seventeen, an INFP-T, and extremely anti-social.
+  I am Eighteen, an INFP-T, and extremely anti-social.
 </p>
 
 <img width="240" height="47" alt="image" src="https://github.com/user-attachments/assets/04a73626-ec9b-4676-b845-80ad4d64ece3" />
